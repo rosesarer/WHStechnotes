@@ -290,3 +290,8 @@ This collected data acts as training material for AI algorithms. For example, my
 may 11, 2026 
 
 my growth theough outt the years was big and strong compared to what i was last year i became a more mature and more persopective person through out the outcome 
+
+
+may 18, 2026 
+
+the person i want to talk about is mr pav and mr pav was a n astrodinary teacher such a teacher like him deserves credut for everyhtibg he has done and if he ever went missing id describe the cops to him as a loyal depend and very caring teacher about his students eductaion status 
